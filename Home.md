@@ -1,1 +1,0 @@
-This is the homepage 2.
